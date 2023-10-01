@@ -1,3 +1,0 @@
-LG
-Modificación 1
-
